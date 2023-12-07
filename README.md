@@ -1,4 +1,4 @@
 i hate my life lol
 <p align="center">
-  <img src="sessoanale.gif" />
+  <img src="readme.png" />
 </p>
